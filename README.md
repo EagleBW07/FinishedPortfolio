@@ -1,2 +1,0 @@
-# FinishedPortfolio
-My Finished Portfolio
